@@ -1,4 +1,4 @@
-#  
+#  exclusive plants vs brainrots Script is the best plants vs brainrots Script, featuring auto-sell and private server access. Safe and powerful for all
 
 
 
